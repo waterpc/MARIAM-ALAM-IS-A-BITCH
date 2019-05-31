@@ -1,38 +1,25 @@
-## Welcome, Mariam Alam is a bitch
+## Mariam Alam is a bitch
 
 
 You can use the [editor on GitHub](https://github.com/waterpc/MARIAM-ALAM-IS-A-BITCH/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Her sister Redeema will follow in her footstep of being a proper dick sucker, I will be the one to take her virginity. Whenever whenever I see her face I want to take a piss all over it. you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+### Mariam Alam is a bitch
 
 ```markdown
-Syntax highlighted code block
+Mariam Alam is a bitch
 
-# Header 1
-## Header 2
-### Header 3
+# MARIAM ALAM IS A BITCH
+## MARIAM ALAM IS A BITCH
+### MARIAM ALAM IS A BITCH
 
-- Bulleted
-- List
+- Mariam Alam is a bitch
+- Mariam Alam is a bitch
 
-1. Numbered
-2. List
+1. Mariam Alam is a bitch
+2. Mariam Alam ia bitch
 
-**Bold** and _Italic_ and `Code` text
+**Mariam Alam is a bitch** and _Mariam Alam is a bitch_ and `Mariam Alam is a bitch` Mariam Alam is a bitch
 
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/waterpc/MARIAM-ALAM-IS-A-BITCH/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+[Link](https://pmcfootwearnews.files.wordpress.com/2019/05/kylie-jenner-01.jpg?w=700&h=437&crop=1) and ![Image](https://pmcfootwearnews.files.wordpress.com/2019/05/kylie-jenner-01.jpg?w=700&h=437&crop=1)
